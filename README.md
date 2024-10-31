@@ -1,5 +1,5 @@
 ## Hi there 👋 I'm Elsie Yuan
-**Data Analyst | Marketing Strategist | MarTech Enthusiast | Cocktail Scientist | Cat-mom (currently teaching my cat *meow-th* with *pawsitive* progress 🐾)**
+**Data Analyst | MarTech Enthusiast | Cocktail Scientist | Cat-Mom (currently teaching my cat *meow-th* with *pawsitive* progress 🐾)**
 
 ---
 ## 👩‍💻 About Me
